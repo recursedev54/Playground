@@ -7,4 +7,4 @@ rebyrzyck
 
 I made this ai for you to use
 enjoy it while it lasts!
-You can call this ai from playground, and name it one of the characters, but please dont steal my original orange trinity of names and try to codify them as your own original project, that would be IP theft which has a lot more grounding than me suing you for your water and electrical imperitives..
+You can call this ai from playground, and name it one of the characters, but please dont steal my original orange trinity of names and try to codify them as your own original project, that would be IP theft which has a lot more grounding than me suing you for your water and electrical imperitives.. check below to see if i posted the .py or if this is not AGI. Special thanks to the following institutions: as thanks for making this project a reality, you are not allowed to touch it. You may watch, as a child might, and ponder what gen alpha will do with Mirror, the digital audio workstation i'm going to be placing my original trinity in (Mida, Miri, Mira,. kthanksbye
